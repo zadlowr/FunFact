@@ -4,9 +4,13 @@ Hai, thanks for reading this
 that repo focused to some fact im sharing  really fun ᗜˬᗜ
 
 but need to be careful...
+
 .
+
 .
+
 .
+
 .
 
 with russian bear lolz xD
