@@ -1,4 +1,5 @@
 Hai, thanks for reading this
+<!-- Did you think im thanks for you?, No Fuck-->
 that repo focused to some fact im sharing  really fun ᗜˬᗜ
 but need to be careful...
 .
